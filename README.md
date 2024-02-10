@@ -7,6 +7,4 @@
 
 ![](https://64.media.tumblr.com/a77414c7b4eff83c9d50658c66354192/9af10e6ef50ca95b-d4/s100x200/9914e773a4733fea7b456954bf4230d8cb4b9064.gifv) ![](https://64.media.tumblr.com/4490a04ccec63138527166d4d6a7ae93/df7d06d913964948-b8/s100x200/5a85ffea59b6c260f2860d40d625356125bb2729.pnj)
 
-![](https://laboratory.neocities.org/stamps/yellow/3.png) ![](https://laboratory.neocities.org/stamps/rbw/4.gif)
-
 ![](https://bloominglantanas.carrd.co/assets/images/gallery09/e1a7d684.png?v=8e241c6f) ![](https://bloominglantanas.carrd.co/assets/images/gallery09/91475528.png?v=8e241c6f)
