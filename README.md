@@ -5,4 +5,5 @@ other rentry [_lynx](https://rentry.co/_lynx) :PP
 
 ![](https://64.media.tumblr.com/f5ef1727be3d9c36733e69418dcca231/2503004b1baf1d0f-d6/s100x200/6dfff7154dd4a47de88604fe1b28e397e52692f1.pnj) ![](https://64.media.tumblr.com/a77414c7b4eff83c9d50658c66354192/9af10e6ef50ca95b-d4/s100x200/9914e773a4733fea7b456954bf4230d8cb4b9064.gifv) ![](https://64.media.tumblr.com/4490a04ccec63138527166d4d6a7ae93/df7d06d913964948-b8/s100x200/5a85ffea59b6c260f2860d40d625356125bb2729.pnj)
 
-![](https://cdn.discordapp.com/attachments/1205596893883797514/1205989721231196231/083a252a713078238ea2d01707c9a1bf.png?ex=65da6073&is=65c7eb73&hm=d6b7b0ab7fc7496620f696154a7d36602836257cb9c59333f62da48d75d70a9a&)
+![](![image](https://github.com/5th-child/5th-child/assets/140922408/1e60271a-5eee-4d0e-92d7-0b1c075651e1)
+)
