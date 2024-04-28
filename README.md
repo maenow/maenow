@@ -1,4 +1,4 @@
-kaworu :)
+Healing and Recovering from ponytown!
 
 [NAAKYOcallout](https://rentry.co/NAAKYOcallout)
 [gameisoveraqua](https://rentry.co/gameisoveraqua)
