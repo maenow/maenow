@@ -1,4 +1,6 @@
-MEOW !! ^___^  i love my friends ngl!
+shoutout to AQUA!!!!!
+
+![](https://i.pinimg.com/564x/ed/9c/a6/ed9ca6634cfc85ed1ba0cc5a31b4c5d4.jpg)
 
 [NAAKYOcallout](https://rentry.co/NAAKYOcallout)
 [gameisoveraqua](https://rentry.co/gameisoveraqua)
