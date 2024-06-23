@@ -1,4 +1,4 @@
-<p align=center> ![](https://komarev.com/ghpvc/?username=5th-child&color=9b7987&style=flat-square&label=alien+stage&abbreviated=true)
+
 
 I'm greatful for this beautiful art.. thank you.. Funkytownx github user :)
 
