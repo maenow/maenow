@@ -1,4 +1,4 @@
-<p align=center> <img src=https://komarev.com/ghpvc/?username=5th-child&color=b08fc3&style=flat-square&label=alien+stage&abbreviated=true>
+<p align=center> <img src=https://komarev.com/ghpvc/?username=5th-child&color=b08fc3&style=flat-square&label=how+many+gummy+worms+i+get&abbreviated=true>
 
 I'm greatful for this beautiful art.. thank you.. Funkytownx github user :)
 
