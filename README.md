@@ -1,7 +1,7 @@
 <p align=center> <img src=https://komarev.com/ghpvc/?username=5th-child&color=b08fc3&style=flat-square&label=how+many+gummy+worms+i+get&abbreviated=true>
 
 
-<p alignt=center> [STRAWPAGE](https://5th-child.straw.page/) [2ND RENTRY](https://rentry.co/meows)
+[STRAWPAGE](https://5th-child.straw.page/) [2ND RENTRY](https://rentry.co/meows)
 
 
 I'm greatful for this beautiful art.. thank you.. Funkytownx github user :)
