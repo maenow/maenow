@@ -3,6 +3,6 @@
 
 [STRAWPAGE](https://5th-child.straw.page/)⠀⠀⠀☆⠀⠀ [2ND RENTRY](https://rentry.co/meows)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[co.ponytownillness](https://rentry.co/ponytownillness)
+⠀⠀⠀⠀⠀⠀⠀[co.ponytownillness](https://rentry.co/ponytownillness)
 
 ![](https://file.garden/ZeS9pBqOoVX2ptTR/yumeno%20bsd%20masuuuarred%20mayoi%20chibi?v=1720390463847)
