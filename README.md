@@ -3,6 +3,7 @@
 
 [STRAWPAGE](https://5th-child.straw.page/)⠀⠀⠀☆⠀⠀ [2ND RENTRY](https://rentry.co/meows)
 
+<p align=center> <img src=https://file.garden/ZeS9pBqOoVX2ptTR/yumeno%20bsd%20masuuuarred%20mayoi%20chibi?v=1720390463847>
 
 I'm greatful for this beautiful art.. thank you.. Funkytownx github user :)
 
