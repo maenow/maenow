@@ -1,4 +1,4 @@
-<p align=center> <img src=https://komarev.com/ghpvc/?username=5th-child&color=5364B0&style=flat-square&label=how+many+gummy+worms+i+ge>
+<p align=center> <img src=https://komarev.com/ghpvc/?username=5th-child&color=E270A4&style=flat-square&label=🍬>
   
 <p align=center> <a href="https://github.com/starsour"><img src="https://file.garden/ZeS9pBqOoVX2ptTR/star%20as%20a%20rat%20chbii%20%3A3?v=1721118832044"></a> <a href="https://github.com/5th-child"><img src="https://file.garden/ZeS9pBqOoVX2ptTR/my%20persona%20as%20a%20rat.%20and%20chibi!!~~?v=1721118586865"></a> <a href="https://github.com/Iu-guang"><img src="https://file.garden/ZeS9pBqOoVX2ptTR/skylar%20chibi%20%3A3?v=1721118950894"></a>
 
